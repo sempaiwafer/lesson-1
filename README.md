@@ -1,0 +1,1 @@
+# bu oddiy soat dasturi
